@@ -5,4 +5,4 @@
 - 🌱 I am currently learning Data Science.
 - 👯 I am seeking new knowledge and partnerships.
 - 📫How to contact me: Via Gmail: Bpontilesi@gmail.com
-- 😄 Pronouns: He.
+- 😄 Pronouns: He/Him.
